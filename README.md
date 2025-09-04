@@ -1,4 +1,4 @@
-![logo](https://github.com/pratikshaa27/pratikshaa27/blob/main/banner.png)
+![logo](https://github.com/pratikshaa27/pratikshaa27/blob/main/Untitled (Facebook Cover) (1).png)
 
 ## 🌐 Socials:
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/https://www.linkedin.com/in/pratiksha-khandbahale-005b39256/)
